@@ -22,5 +22,10 @@ Per 1 kg di pane:
 * Dividilo magari in due o tre pagnotte e lascialo riposare mezz'ora prima di metterle in forno
 * Accendi il forno a 250 gradi. Una volta caldo inforna il pane e lascialo cuocere per 10 minuti
 * Place a small (oven-proof) bowl of water inside the oven
-* quando vedi la crosticina dorata abbassa a 180 e lascialo ancora per 10 minuti
-* 
+* Quando vedi la crosticina dorata abbassa a 180 e lascialo ancora per 10 minuti
+* Bagnare la crosta con un pennello per far si che non si spacchi
+
+## Credits
+
+* Mia cugina
+* Mia mamma
